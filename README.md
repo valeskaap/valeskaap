@@ -32,7 +32,7 @@ I'm currently working as a **Software QA Analyst at EasyJur**, a legal tech comp
 ## 📫 Let's Connect!
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/valeskapaulino/)
-- ✉️ Email: (valeska.paulino@hotmai.com)
+- ✉️ Email: (valeska.paulino@hotmail.com)
 - 🚀 Personal portfolio: coming soon! ✨
 
 ---
